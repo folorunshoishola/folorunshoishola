@@ -13,4 +13,6 @@ Looking ahead, I am eager to further hone my skills and leverage new opportuniti
 I am available to provide any additional information or to discuss scheduling further inquiries.
 
 Best regards,
+
+
 Folorunsho Abdulrahman Ishola
